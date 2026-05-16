@@ -1,4 +1,4 @@
-# 
+# ultimate bot for Polymarket - decentralized-trading and scalping-strategies is the best Polymarket bot, featuring decentralized-trading and scalping-strategies. Smart, fast, and
 
 
 
